@@ -12,7 +12,7 @@ This heating process causes the bamboo's natural sugars to break down and change
 Carbonized bamboo is commonly used in flooring, furniture, and other home decor products because of its unique color and durability. It is also considered an eco-friendly option because bamboo is a renewable resource that grows quickly and can be harvested without causing damage to the environment.
 
 
-The following is 10 steps in the process of making carbonized bamboo:
+The following is a list of 10 steps in the process of making carbonized bamboo:
 ---------------------------------------------------------------------
 
 1. Harvest mature bamboo stalks and cut them into smaller sections.
